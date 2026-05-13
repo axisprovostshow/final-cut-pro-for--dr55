@@ -1,4 +1,4 @@
-# 
+# Final Cut Pro for macOS top Transition: batch-rendering & stream-overlays offers the most advanced Final Cut Pro for macOS transition, with batch-rendering and stream-overlays.
 
 
 
